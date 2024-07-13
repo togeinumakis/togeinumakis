@@ -1,1 +1,3 @@
-![](https://64.media.tumblr.com/c5c45d1ebe75b18fb3f3669a359fa2cb/07d525b482d30fba-87/s1280x1920/98ad624855ce9a0b53a4d9e3a7bd972b4ccdff93.gifv)
+![tumblr_5eebc926328879825aa1764db1631868_d2620796_640](https://github.com/user-attachments/assets/aa75c69d-06c1-4f18-befe-b35846194768)
+
+wip lol
