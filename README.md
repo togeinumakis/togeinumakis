@@ -1,4 +1,4 @@
-![tumblr_5eebc926328879825aa1764db1631868_d2620796_640](https://github.com/user-attachments/assets/aa75c69d-06c1-4f18-befe-b35846194768)
+![43802adef51243249d21e5e134832723](https://github.com/user-attachments/assets/4a9e9abb-e66b-4da1-845f-205bb156933f)
 
 # general info
 
@@ -12,9 +12,9 @@ multifandom
 
 ~~certified freak~~
 
-[rentry](https://rentry.co/foreverworth) ![](https://64.media.tumblr.com/5dc2e735b6402a4ad5edc573cba80a80/472fefc4266d762d-63/s75x75_c1/e23e0d6bb8c3434e1c4dc69b5d78ac08bfaf5dbc.gifv) [retrospring](https://retrospring.net/@gooicide)
+[rentry](https://rentry.co/foreverworth) ![violin-20x20px](https://github.com/user-attachments/assets/4b832dfa-e1c4-4730-922b-a442228bada4) [retrospring](https://retrospring.net/@gooicide)
 
-![](https://64.media.tumblr.com/b95d3d3bd3cd65fd10f3de2e09a22d36/d838ef48a68f6478-87/s500x750/86fbdccbf9fe7061d7c34717a6d93b630df4c0ff.gifv)
+![tumblr_840b3c71f2245c77b9e7ac9f687a3b31_6c078be7_1280](https://github.com/user-attachments/assets/325c5d26-99c6-486d-b231-243b19d069a0)
 
 # pony town info
 
