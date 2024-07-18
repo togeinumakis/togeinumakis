@@ -10,11 +10,13 @@ social anxiety, ADD, possible hypersexuality
 
 multifandom
 
+**#1 TOGE INUMAKI LOVER FOREVER HE WILL DEFEAT SUKUNA HE WILL LIVE!!!!!!!!!!!!!!!!!!!!**
+
 ~~certified freak~~
 
-[rentry](https://rentry.co/foreverworth) ![violin-20x20px](https://github.com/user-attachments/assets/4b832dfa-e1c4-4730-922b-a442228bada4) [retrospring](https://retrospring.net/@gooicide)
+[rentry](https://rentry.co/foreverworth) ![](https://i.ibb.co/DzhxqGZ/IMG-9650.gif) [retrospring](https://retrospring.net/@gooicide)
 
-![tumblr_840b3c71f2245c77b9e7ac9f687a3b31_6c078be7_1280](https://github.com/user-attachments/assets/325c5d26-99c6-486d-b231-243b19d069a0)
+![](https://64.media.tumblr.com/b95d3d3bd3cd65fd10f3de2e09a22d36/d838ef48a68f6478-87/s500x750/86fbdccbf9fe7061d7c34717a6d93b630df4c0ff.gifv)
 
 # pony town info
 
