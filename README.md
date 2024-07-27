@@ -1,39 +1,56 @@
-![f3886ac85801cd03d03054e42250b645daa75032](https://github.com/user-attachments/assets/5099b6c4-f71a-4b3a-8a83-524d1a53ec97)
+remember to ship lumaki (me x inumaki) everyone!!
 
-# general info
+![image](https://github.com/user-attachments/assets/e9a5b97a-4ba3-4e39-8c52-8aa7f3b2b50d)
 
-**may** . lulu
+![dhg7vui-5e6f8765-e0aa-4358-846f-8696f27e7fc6](https://github.com/user-attachments/assets/a6bb19cf-6342-408b-8ac4-66e780d30cef)![dg5i91r-6dfd94b6-9620-4c13-b253-a2b3e8ab2c2a](https://github.com/user-attachments/assets/76f4ad13-1ddf-4eb7-b561-c5a9d7ee21ee)![dag6i0p-b76b3dc7-a258-44f3-967c-fc42a4b0440d](https://github.com/user-attachments/assets/159517f9-6989-4e8a-b637-a61d0a42d6f4)![dddjna2-f1cfc0dd-e0d6-4a15-9c92-20e7fcf618fa](https://github.com/user-attachments/assets/66730e5f-5b23-4d12-a44f-73d4398264d5)![dao44u2-2078651c-2a0a-4b85-9178-2c4cbe2d8cef](https://github.com/user-attachments/assets/b2f7946c-0b2a-4616-b139-f2659c5229a1)![dahp67f-906c247d-46af-4a5a-b49c-05f159e134fc](https://github.com/user-attachments/assets/62c73825-c371-4a0f-aebe-e1053f9481dc)![dby2aru-157f05b1-be57-4952-b349-f768451d4c31](https://github.com/user-attachments/assets/7c38b0eb-0f19-4cd7-85f7-a7b5a0b5c346)![his_eyebrow____sanji_stamp_by_straw_hats_inc_dl0w0m-fullview](https://github.com/user-attachments/assets/b7cf59d6-030f-452c-ae55-3b30111b4658)![dhowin4-48f5e7bb-44b1-42bc-b8b7-eafa33e665ab](https://github.com/user-attachments/assets/d4584f4e-3a09-45a9-9f80-92024f6d19cf)![d8bvwuj-cd35019f-c6b0-493d-8494-6eed1e766345](https://github.com/user-attachments/assets/8ffb8b03-288f-42a5-a929-f2fe1906994e)![d19elq7-98cde980-41f6-4ead-a204-9952049ee7c5](https://github.com/user-attachments/assets/01f346fb-ae9f-4b85-ba0f-cb47a9e5aa8a)![d76fcyz-043e3a93-b686-4141-86bc-f5c6cc62b036](https://github.com/user-attachments/assets/f835307c-0edb-4ae4-aea1-26710cf03dde)![d6dveyl-97cc3b40-31db-4a1f-bc4a-b82679f352c7](https://github.com/user-attachments/assets/4883a8ce-cfb7-41b8-a42c-31293782370f)![d61ql0o-61110276-efec-4bba-9ad2-01e8645b9434](https://github.com/user-attachments/assets/01c44b9b-726f-4e62-b67d-dfc49256de8d)![d9lo2os-cae963bb-e7a2-4618-8ac3-6c393a7f8553](https://github.com/user-attachments/assets/aa70097b-1e21-4be4-954e-13d6272e1f65)![dcklb9w-ebd0b2f7-013b-4c7b-88ac-dbdeff2ff21f](https://github.com/user-attachments/assets/3536b609-09e6-46f6-8981-1009cca4d406)![d9lni3c-5f06e8fa-afcd-4a06-b479-ee4f517f84df](https://github.com/user-attachments/assets/6feb0df5-3ecb-4864-b949-785147d25a3f)![d9lisy4-4a6e844b-7911-4508-b5e7-16d92519dd8a](https://github.com/user-attachments/assets/d60ffacf-1ed3-4445-a15d-dccc48cb52e4)![d6svomf-6568cc3b-42f1-4dd4-8e7b-603fceaf56a1](https://github.com/user-attachments/assets/95139fb5-62a0-4b7a-affd-734b072ce376)![dbaguam-cf34f576-af51-4a96-a303-41e30da8b49d](https://github.com/user-attachments/assets/0dafb917-5a6a-4393-b3a0-ce37617a7e30)![d1t8sjb-356c5df2-a9f6-413c-9209-82cd86c854f0](https://github.com/user-attachments/assets/2ab203ca-4da1-47b0-a983-88f6c0b39576)![__i_forget_shit___by_da_dingo_dq8xqv-fullview](https://github.com/user-attachments/assets/8395ba74-d4c0-4035-a53a-c98176b8319d)![d149wzn-dae55b67-e247-4bc0-9622-44289aba7834](https://github.com/user-attachments/assets/68a4a6de-df97-40ab-9ed1-71b17885f988)![d2xbp7q-3c1f4c6c-a82e-4100-8259-d4d845418dac](https://github.com/user-attachments/assets/0a858334-48df-42d6-8aec-32ba8e0a5c2e)![d2y251z-f2650ce2-6c9a-4d4c-b503-1b02e91188ac](https://github.com/user-attachments/assets/0e0a3443-5b3c-436b-baef-e5b6f4ea89fb)![daqgutl-be7d167b-e51a-4e8a-8be9-002788e45f5f](https://github.com/user-attachments/assets/90a00b50-733d-40f3-bc26-82fdb8c9dd0d)![d1wicmi-21ed189f-5ffd-433a-b3d0-0cd0c72f51b4](https://github.com/user-attachments/assets/80517670-2a33-4d66-aaf5-79056bd1f3d4)![da7nb16-961af419-1988-42e9-af88-10064baac866](https://github.com/user-attachments/assets/0a1be3c2-931f-4853-9bef-89bc28b2fbf8)![d5b6g5x-746bde85-c8e1-49c7-b037-16935cf8e5c8](https://github.com/user-attachments/assets/0b9c8201-6bb0-4d24-a69e-46e8ba797403)![d87xmn8-ddf8b510-12c2-450b-97c6-bb4a257066b2](https://github.com/user-attachments/assets/4027bf5d-226c-46d9-94c3-50c06c82efbd)![stamp__support_plotting_by_xxsomeoneelsexx_d1cz43v-fullview](https://github.com/user-attachments/assets/906260cd-1a44-44cd-b688-5e18c2e34314)![dyv4zg-d1ef80b7-1fe8-45a3-b08d-714667f954f3](https://github.com/user-attachments/assets/13573240-a777-4bb5-b506-11d788895b0d)![dbmawgg-c612154a-2a8e-45dc-ac6f-9df3cc354f23](https://github.com/user-attachments/assets/b8c9f03b-58c8-40b3-89f2-5a5790d6c6ce)![dnb9os-e88ba906-d7e9-4013-a6ea-207a78fd0e29](https://github.com/user-attachments/assets/d7335972-85a5-4229-8d4f-3a067d5a0268)![dbt94gg-3fbabaa9-a522-4bdc-b029-da8061c906af](https://github.com/user-attachments/assets/696a425e-2c05-4cc0-99f3-dc9cf18bdbd7)![dan6tzt-0e67cd0c-5d01-40d8-8d3d-f0698d31c5ec](https://github.com/user-attachments/assets/a1346208-7454-4d2f-8692-7e948f8d7eef)![d7vh9wm-90b76c59-388a-47a9-9f74-83b555933996](https://github.com/user-attachments/assets/4a59167c-d9a8-44fc-b65e-0967bc6246e9)![d15djpe-ef03357d-39a0-4391-8c10-4b25f6a89bd1](https://github.com/user-attachments/assets/ed232d43-6324-4241-9075-9baec1cbc062)![d793w46-ac03a21a-a1e1-4f4e-82b6-845ea28038f3](https://github.com/user-attachments/assets/647de0a0-e50b-427b-9817-02f059ea9676)![da3dc56-6bdc1c6f-7e34-4e1a-9dc0-87ea3c318d77](https://github.com/user-attachments/assets/be29391a-944c-40d6-a0df-ab41111f7bdb)![d6uqdop-d93cc0fe-8f86-4ad9-9cfa-1c480ee12e25](https://github.com/user-attachments/assets/f13d5e36-19fc-454f-a66a-c0452b456d4b)![d9fl0we-b379f0bc-1bbe-4ac9-ab9e-9c136dcbe4db](https://github.com/user-attachments/assets/2fabfa53-28cb-4f83-9e72-477ae679b146)![dc1vsfw-d5bd5b7e-9c94-494b-9351-a86b3f9391cc](https://github.com/user-attachments/assets/a3405863-8499-40a5-baa0-edc128bb1073)![d19gm4v-503c7bf7-ab26-4948-94e4-d1f55d26ffd6](https://github.com/user-attachments/assets/ff17a1ef-40cb-4968-8785-382c6f487fb2)![ddjiwjs-74abfd87-d531-41f1-a069-201f244b9250](https://github.com/user-attachments/assets/59ea388b-2d9a-4f5f-a517-ec90dbbf0666)![d11w2g1-3ffbe78b-533d-4148-a30b-c048e537e216](https://github.com/user-attachments/assets/efaf2ade-7647-4a47-92d0-7d04f74ac537)![d27k623-95ce6037-07f3-497b-a372-961c5c4a7ea7](https://github.com/user-attachments/assets/dec94e21-a411-4c18-bd72-e78dd100b8ff)![d3jb449-487addf5-eb79-43fa-b431-6f109de4eae6](https://github.com/user-attachments/assets/95a40a3f-a8ab-4563-a330-11d4aa4944d0)![d4nhnl9-fd2d65ca-5195-4b01-a24a-8a3771b45e01](https://github.com/user-attachments/assets/3bb7ec72-f0b6-4786-96aa-2b68ce5abd20)![d1e65on-a5eac239-0013-4ade-b76a-b0aa0f7c1c61](https://github.com/user-attachments/assets/23230ac3-5f34-4a5c-877b-136227c80b17)![d1awdmw-bf29da4f-408e-4013-aa67-75cc75ce08e6](https://github.com/user-attachments/assets/09ec40a3-b51e-4005-bcdf-70349365534f)![_stamp__popularity_doesn_t_matter__by_hudicmark219_dcf4w7n-fullview](https://github.com/user-attachments/assets/55de9e62-4195-458a-a155-efd620a78334)![d6j0mlx-5fab84f1-dc79-45ff-a326-ce50b2a4b9a3](https://github.com/user-attachments/assets/30d294ec-bf6d-41c6-bbf6-c677154e0b8d)![dyag7f-8fedbcbf-6d65-4827-a1ca-675016e9943c](https://github.com/user-attachments/assets/0a812848-a8c2-4682-9e39-ef06e0e44b37)![d5w4g5p-20524ce6-8026-43d4-a869-71e1506415c9](https://github.com/user-attachments/assets/86a66a0b-4936-458d-90f7-1a826376f555)![d5vzvww-b15fc9b0-5066-46a5-9eff-fd3cd311ebe4](https://github.com/user-attachments/assets/1fa694dd-2b51-473c-b51e-c29e975e0f49)![d2ghgg0-cd6e78e8-21ee-4bad-b752-4a7ed04d5171](https://github.com/user-attachments/assets/a79f6913-eb62-4933-993b-a93f72489e7c)![ddkeco5-54ebc63f-d396-421a-8b97-9191736f6f56](https://github.com/user-attachments/assets/96efb431-f9cc-448f-8f0b-a3796efbc54f)![d618x1p-ed6d6878-73a5-4c97-9aa5-6e0323730baa](https://github.com/user-attachments/assets/8efff294-3d48-4e97-90cf-0b24e1edad76)![d1bvr69-29927fb8-06c4-466d-8895-eb6bc4c69a8c](https://github.com/user-attachments/assets/590d8bc3-c804-46b5-a95d-bb2e26f489a0)![d1hllzs-25351568-bae8-43cd-981d-966646be103e](https://github.com/user-attachments/assets/5b4a56ef-701e-4d59-9b3e-21994818fadb)![def0wq4-48dae117-6f04-4c6c-ad78-5a82e4f81550](https://github.com/user-attachments/assets/2c1642bb-abb5-4067-b198-05fed57122d4)![d757xpe-284bd7d4-205b-4444-a7e3-177978730d15](https://github.com/user-attachments/assets/9958360b-24dd-43cd-a982-0bd78e7d54a0)![dbbdso6-31f16372-fe05-40d5-8e2f-9433034bfd2b](https://github.com/user-attachments/assets/09aebd31-c043-4254-9152-461768b64237)![dbst6gv-4d070872-9460-4467-b370-fdf55d89afde](https://github.com/user-attachments/assets/061da679-0685-4a66-89fb-fe6c9c681724)![d2rm09q-8a3f735b-8fe5-420b-94a1-3650f1245165](https://github.com/user-attachments/assets/d1221537-cfb5-41d8-a6cf-93f7f6416419)![d9nx7v6-9117147b-d708-4fc8-ae18-f30ac75712af](https://github.com/user-attachments/assets/34b1e0c9-ed3c-49fe-8b53-337c5617dd62)![d1bq7p5-d6db5dca-7422-4626-8312-0eac9d6a5ed2](https://github.com/user-attachments/assets/4dd34f0c-22be-4b00-8500-293e59dbff45)![dy3mlq-7b511510-5d75-4dd3-9da6-fcb498d7e0a6](https://github.com/user-attachments/assets/21dcaa0b-7161-438c-8df7-ce5c4b3c2ce8)![d31mgne-dff62a3b-76d8-4f01-8d2b-8d160aba87bf](https://github.com/user-attachments/assets/e56adc7e-6759-4096-8064-e9dc00fc98e6)
 
-they / them , mexican american minor
 
-social anxiety, ADD, possible hypersexuality
 
-multifandom
 
-**#1 TOGE INUMAKI LOVER FOREVER HE WILL DEFEAT SUKUNA HE WILL LIVE!!!!!!!!!!!!!!!!!!!!**
 
-~~certified freak~~
 
-[rentry](https://rentry.co/foreverworth) ![](https://i.ibb.co/DzhxqGZ/IMG-9650.gif) [retrospring](https://retrospring.net/@gooicide)
 
-![](https://64.media.tumblr.com/b95d3d3bd3cd65fd10f3de2e09a22d36/d838ef48a68f6478-87/s500x750/86fbdccbf9fe7061d7c34717a6d93b630df4c0ff.gifv)
 
-# pony town info
 
-c+h is **fine** with me!*!* feel free to cover me too i honestly dgaf
 
-whispering is encouraged because i am most likely offtab or not looking at pt
 
-you can usually find me at market, lower library, or docks. if im not at any of those, im prob out marching with my regis
 
-**dont copy my skins.** please ask for inspo, and ill prob give it to you. just please dont colorpick off my ponies ;_;
 
-no dni besides hazbin hotel / helluva boss and ranfren... you guys are just...! hm!
 
-![d5lqn63-4847c34c-8119-4679-8e4b-78c9a3045ace](https://github.com/user-attachments/assets/0cca2fb4-baf6-4720-8644-e0b8593024d6) ![d3bf432-cf528f8c-07b3-4055-be56-897bee8991ed](https://github.com/user-attachments/assets/e2de14a6-4ae8-420b-85b6-6055d1fd0d02) ![d3fqn3b-415db820-cc00-4ed0-bf15-61fff7c8caac](https://github.com/user-attachments/assets/7e4852ee-ac19-4e86-b891-076205a05ccf) ![hs__eridan_ampora_stamp_by_janbearpig_d3ebbgn-fullview](https://github.com/user-attachments/assets/acfcdfce-1e0d-4579-ba36-10b092925524) ![d42ujmq-ef9935ba-e9a3-4741-abf3-c621caf50cd0](https://github.com/user-attachments/assets/66b8bb39-99d5-4dbe-a3fc-86aff042fb3e) ![caligulasaquarium_fan_stamp_by_ryujidicey_d2xewlo-fullview](https://github.com/user-attachments/assets/dfb44413-3799-4a91-829c-237667d266a5) ![d527thc-036728d2-5dc0-49d6-be96-6ea4ced5dcb9](https://github.com/user-attachments/assets/f8453eb1-5d2e-437b-ad65-578ba5f6b03d) ![stamp___eridan_by_nerdy_stamps_d8xjytt-fullview](https://github.com/user-attachments/assets/fea6878f-3213-4bc5-81cc-c1568cb27561)
 
-i made these at 4 in the morning #LoveIsLove :heart:
 
-![Screenshot 2024-07-18 000039](https://github.com/user-attachments/assets/7aa4db7c-dbc4-4b24-9b89-32bad05d5759) ![Screenshot 2024-07-17 235320](https://github.com/user-attachments/assets/2588171f-548b-47c8-bc08-8b588c8cc0a2)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
