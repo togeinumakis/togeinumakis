@@ -10,10 +10,10 @@
 
 > gods strongest selfshipper [my f/o if u didnt guess it already](https://jujutsu-kaisen.fandom.com/wiki/Toge_Inumaki)
 
-> more on interests and dni in my [rentry](rentry.co/-cursedspeech) (im too lazy to type allat out)
+> more on interests and dni in my [rentry](https://rentry.co/-cursedspeech) (im too lazy to type allat out)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♫ㅤlinks
 
-> [rentry](rentry.co/-cursedspeech)ㅤ♪ㅤ[strawpage](https://carnivorousprey.straw.page)ㅤ♪ㅤ[retrospring](https://retrospring.net/@bedroque)
+> [rentry](https://rentry.co/-cursedspeech)ㅤ♪ㅤ[strawpage](https://carnivorousprey.straw.page)ㅤ♪ㅤ[retrospring](https://retrospring.net/@bedroque)
 
 > all of my other socials can be found in my rentry !!!! ^u^
