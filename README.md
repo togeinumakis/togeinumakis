@@ -14,6 +14,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♫ㅤlinks
 
-> [rentry](https://rentry.co/-cursedspeech)ㅤ♪ㅤ[strawpage](https://carnivorousprey.straw.page)ㅤ♪ㅤ[retrospring](https://retrospring.net/@bedroque)
+> [rentry](https://rentry.co/-cursedspeech)ㅤ♪ㅤ[strawpage](https://togeinumakis.straw.page/)ㅤ♪ㅤ[retrospring](https://retrospring.net/@bedroque)
 
 > all of my other socials can be found in my rentry !!!! ^u^
