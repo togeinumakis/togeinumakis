@@ -8,7 +8,7 @@
 
 > i dont mind c+h or being booped or anything like that! i might not respond right away because im usually offtab or something
 
-> gods strongest selfshipper [my f/o if u didnt guess it already](https://jujutsu-kaisen.fandom.com/wiki/Toge_Inumaki)
+> gods strongest selfshipper :tongue: my f/os [1](https://jujutsu-kaisen.fandom.com/wiki/Toge_Inumaki) and [2](https://riordan.fandom.com/wiki/Leo_Valdez)
 
 > more on interests and dni in my [rentry](https://rentry.co/-cursedspeech) (im too lazy to type allat out)
 
