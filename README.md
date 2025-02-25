@@ -10,7 +10,7 @@
 
 > i dont mind c+h or being booped or anything like that! i might not respond right away because im usually offtab or something
 
-> gods strongest selfshipper :tongue: my f/os [1](https://jujutsu-kaisen.fandom.com/wiki/Toge_Inumaki) and [2](https://riordan.fandom.com/wiki/Leo_Valdez)
+> gods strongest selfshipper :tongue: my f/os [1](https://jujutsu-kaisen.fandom.com/wiki/Toge_Inumaki) and [2](https://riordan.fandom.com/wiki/Leo_Valdez) and [3](https://agathachristie.fandom.com/wiki/Philip_Lombard)
 
 > more on interests and dni in my [rentry](https://rentry.co/-cursedspeech) (im too lazy to type allat out)
 
