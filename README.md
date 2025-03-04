@@ -20,6 +20,11 @@
 
 > all of my other socials can be found in my rentry !!!! ^u^
 
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♫ㅤthas all bai
 
 ![](https://i.imgur.com/S9kIRcZ.png) ![](https://i.imgur.com/bNy1f6d.gif) ![](https://i.imgur.com/RIEXXiY.png) ![](https://i.imgur.com/A0KNWcu.png) ![](https://i.imgur.com/6nukxgv.gif) ![](https://i.imgur.com/RNXMY1D.png) ![](https://i.imgur.com/KpLpJGM.gif) ![](https://64.media.tumblr.com/f998b07b49e21fccea05366d0e02f58c/0b8f78c4676469be-d7/s100x200/63dfef95de7868e5ca0f946eb9e89b5834a53b2c.pnj) ![](https://64.media.tumblr.com/7375acdf64f383ce28dc369f4b077fb0/b5d6dcce09d8d7cb-94/s100x200/c1a8f11d22e6a9adea720983c018d8614cbccad2.gifv) ![](https://64.media.tumblr.com/e79971fcd1824a404bd44cb336b1150d/f988212ba3c640ad-)
+
+NANAGO TAKEOVER
+
+![](https://64.media.tumblr.com/3ee433e2b75c8e441f8acec687184936/a84cac665c3559e0-2e/s1280x1920/7fa2ffc535912d823c2faee5042aca7cebbe50c9.jpg)
